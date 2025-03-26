@@ -5,4 +5,4 @@
 
 报到会议地点：西安曲江国际会议中心
 
-https://mp.weixin.qq.com/s/4-i99G12--sE8iQMQ62w1A
+https://mp.weixin.qq.com/s/xxakNt5yibax9SAhmv3ROQ
