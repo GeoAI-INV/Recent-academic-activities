@@ -9,6 +9,8 @@ https://mp.weixin.qq.com/s/xxakNt5yibax9SAhmv3ROQ
 
 # 会议名称：2025年中国地球科学联合学术年会
 
+会议时间：2025年10月18-22日 成都
+
 https://mp.weixin.qq.com/s/NeardTW_8LtM6H4NUX6eBA
 
 
