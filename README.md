@@ -7,6 +7,8 @@
 
 https://mp.weixin.qq.com/s/xxakNt5yibax9SAhmv3ROQ
 
+# 会议名称：数学与人工智能驱动的地球科学大数据分析研讨会 https://mp.weixin.qq.com/s/XvXUS6tOcDRyj7TLjTczHA
+ 
 # 会议名称：2025年中国地球科学联合学术年会
 
 会议时间：2025年10月18-22日 成都
